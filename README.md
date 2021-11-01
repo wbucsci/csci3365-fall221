@@ -8,4 +8,6 @@ Micah has come and gone.
 
 Rebecca was here!!
 
+Rebecca was here!!
+
 Alan was here as well.
